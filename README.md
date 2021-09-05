@@ -1,0 +1,1 @@
+# random-gif-on-rate-currency
